@@ -1,4 +1,4 @@
-# ᴛᴏᴋʏᴏ_ᴜᴘᴅᴀᴛᴇs | Auto-Delete Bot
+# ᴛᴏᴋʏᴏ_ᴜᴘᴅᴀᴛᴇs | Auto-DeleteX Bot
 
 **Credits / Branding: Tokyo_Updates**
 
